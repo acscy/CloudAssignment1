@@ -1,1 +1,0 @@
-# CloudAssignment1
